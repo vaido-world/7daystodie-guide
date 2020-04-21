@@ -1,1 +1,0 @@
-# 7daystodie-guide
